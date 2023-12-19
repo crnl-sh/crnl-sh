@@ -1,5 +1,5 @@
 - 👋 Salut moi c'est Sacha 
-- 👀 Etuidant à la Normandie Web School
+- 👀 Étudiant à la Normandie Web School
 - 🌱 Passioné d'histoire et de football
 - 💞️ Ancient commercial futur designer 
   
